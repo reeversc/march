@@ -1,0 +1,17 @@
+Meal,Food Item,Calories,Protein (g)
+Meal 1: Breakfast,10 oz grilled pork chops,550,70.0
+Meal 1: Breakfast,"5 large eggs, scrambled",350,30.0
+Meal 2: Mid-morning Snack,5 oz smoked salmon,175,25.0
+Meal 2: Mid-morning Snack,5 oz grilled tilapia,150,32.5
+Meal 3: Lunch,10 oz grilled chicken breast,350,65.0
+Meal 3: Lunch,8 oz grilled swordfish,240,48.0
+Meal 4: Afternoon Snack,5 oz canned sardines,250,30.0
+Meal 4: Afternoon Snack,5 oz grilled chicken breast,175,32.5
+Meal 5: Dinner,10 oz grilled turkey breast,400,80.0
+Meal 5: Dinner,8 oz grilled shrimp,240,48.0
+Meal 6: Evening Snack,5 oz grilled halibut,175,30.0
+Meal 6: Evening Snack,5 oz grilled tilapia,150,32.5
+Additional Snacks,5 oz canned crab meat,150,30.0
+Additional Snacks,8 oz grilled pork loin,320,56.0
+Additional Snacks,5 oz canned sardines,250,30.0
+Total,,3925,639.5

@@ -1,0 +1,13 @@
+https://www.aao.org/eyenet/article/disc-hemorrhages-in-eyes-with-glaucoma
+https://www.google.com/search?q=eye+strain+broken+blood+vessel&oq=eye+strain+broken+blood+vessel&gs_lcrp=EgZjaHJvbWUyBggAEEUYOdIBCDQ4MzFqMGo0qAIAsAIA&sourceid=chrome&ie=UTF-8
+https://www.google.com/search?q=glaucoma+red+eyes&oq=glaucoma+red+eyes&gs_lcrp=EgZjaHJvbWUyBggAEEUYOdIBCDM0MTNqMGo5qAIAsAIA&sourceid=chrome&ie=UTF-8#ip=1&vhid=aEq2kOwvofmSDM&vssid=l
+https://www.google.com/search?q=eye+strain+cheeks&oq=eye+strain+cheeks&gs_lcrp=EgZjaHJvbWUyBggAEEUYOdIBCDY5MDJqMGo0qAIAsAIA&sourceid=chrome&ie=UTF-8
+https://www.nvcofny.com/eye-care/computer-time-can-lead-to-eye-strain-headache-facial-pain/
+https://www.google.com/search?q=binocular+vision+evaluation&oq=binocular+vision+evaluation&gs_lcrp=EgZjaHJvbWUyBggAEEUYOdIBCDExNjRqMGo0qAIAsAIA&sourceid=chrome&ie=UTF-8#ip=1
+https://medlineplus.gov/ency/article/003031.htm
+https://www.vision-specialists.com/
+https://www.google.com/search?q=binocular+vision+evaluation+lansing+mi&sca_esv=596546401&ei=oP2bZZPqFd2_0PEPwpuuyA4&ved=0ahUKEwiTuqDW982DAxXdHzQIHcKNC-kQ4dUDCBA&uact=5&oq=binocular+vision+evaluation+lansing+mi&gs_lp=Egxnd3Mtd2l6LXNlcnAiJmJpbm9jdWxhciB2aXNpb24gZXZhbHVhdGlvbiBsYW5zaW5nIG1pMgUQIRigATIFECEYqwJIyB1QqgdY6BZwAHgCkAEAmAFjoAGdB6oBAjExuAEDyAEA-AEBwgIEEAAYR8ICBRAAGIAEwgIGEAAYFhgewgIFECEYnwXiAwQYACBBiAYBkAYI&sclient=gws-wiz-serp
+https://www.google.com/search?q=binocular+vision+scrolling&oq=binocular+vision+scrolling&gs_lcrp=EgZjaHJvbWUyBggAEEUYOdIBCDc3NjdqMGo0qAIAsAIA&sourceid=chrome&ie=UTF-8
+https://www.google.com/search?sca_esv=598014371&q=binocular+vision&tbm=isch&source=lnms&sa=X&ved=2ahUKEwizydG-s9mDAxVjk4kEHfakDU4Q0pQJegQIDRAB&biw=1470&bih=712&dpr=2
+https://www.google.com/search?q=one+eye+strain&oq=one+eye+strain&gs_lcrp=EgZjaHJvbWUyBggAEEUYOdIBCDYwMzJqMGo3qAIAsAIA&sourceid=chrome&ie=UTF-8
+https://www.youtube.com/results?search_query=comprehensive+eye+exam
